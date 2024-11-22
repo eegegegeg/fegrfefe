@@ -2,6 +2,6 @@ https://www.last.fm/api/auth/?api_key=2f011c00b92acc431cd13dd5aebf06a3&token=hru
 
 https://www.last.fm/settings/lostpassword/confirm?token=02b5c4eb-e015-4f27-b81a-f55c2b1f990e
 
-http://www.last.fm/api/auth/?api_key=2f011c00b92acc431cd13dd5aebf06a3&token=_HIPrNN6vOhqMFBc9c-3viTEUwVIkkMC
+https://click.txn-email03.playstation.com/?qs=c1e173178f1aa12c3a7842144a77fe9a308c0c81c3eee72f1555a94672d572e8b9fff3ba99f11f85fadaeda2c1d1fc4e9e98a4bddf64737876df3c2048ceded4
 
 https://u29077275.ct.sendgrid.net/ls/click?upn=u001.M-2B6nk5h4Qv76Iz-2BoD9WSEBpzg19kPdsPjmSbSlNHmfDBn9rw8MC-2BPcjgrB-2Fc8SoQ0Fn4OdC35Xf3-2BvssH8UVnW71N9eadcRKcsVYWh5cHek-3D9rPT_F68R7JwB4dkoEpWlkD0hlFK8JrT-2BAzdjS3bGhiww0mVHzA7-2FQn5kCpopo6rhvIyHCrLDU1s0YxkL2YupJQwlVa8k1kq5K3vdBSqknrg8LPagHCEU1NEn7FnNakYucLQKqNa9iTZPbxH2c3huWIxIHV57SZumA5Yhe9Svbeg0j2tMMsuaCh6e0zvWy7kEiWE49oVSFhiEvgEXbq4vJYAykm7N01MGVt7dJke94DTuhUJlQpdh2fcvjvngbuyk0cxn
