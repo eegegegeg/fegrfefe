@@ -1,3 +1,1 @@
-https://character.ai/login/3f35e6d2-1c62-4c17-85f3-bbaf2a1fa44f
-
-https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbEVyQTlwNnhNRk5SdGhBTS1ndF9TX3dIcGl3d3xBQ3Jtc0trQWpNU0ZWeDFaSzdIV2l6Z2lwYnJRdGhJRHNZY056MlFzWHRLaTR4UkpxM2g1ZUhLNnA5WVVvbHIwYU42QTdvTFAzaVJEOXZvbzM0a3Vpd3E5Yk5UX0xMam9wTTB6UDU4alFzNVh6ZmJVSUszQUlNYw&q=https%3A%2F%2Fjunchiu.tumblr.com%2F&v=aCdm9EA2rzQ
+https://character.ai/login/75ad4f9e-1a3d-48f8-a59e-571d13d3b4c2
