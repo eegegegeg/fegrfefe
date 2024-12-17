@@ -1,1 +1,1 @@
-https://character.ai/login/d42dfd36-29ab-4b66-b031-36f668fa054d
+https://character.ai/login/0815c474-6591-4ec2-9148-56811b648927
