@@ -1,3 +1,3 @@
-[https://character.ai/login/595384bf-e0fa-4859-8abc-e444faec9656
-](https://character.ai/login/2537413c-e6f1-4e71-8064-575758e6585d)
+https://character.ai/login/19e151a2-05ba-4b12-af7a-9934eec1aa74
+
 https://www.google.com
