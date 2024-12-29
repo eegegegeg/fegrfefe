@@ -1,1 +1,1 @@
-https://character.ai/login/335c4833-f2d1-4c4c-9ab4-f1fc81c6d8e3
+https://www.tumblr.com/sqkurah/759280539622653952/sasuke-sakura?source=share
