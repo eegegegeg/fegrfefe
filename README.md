@@ -1,3 +1,3 @@
-https://skribbl.io/?QiCtn5SK
+https://skribbl.io/?QiCCQQbx
 
 https://discord.com
