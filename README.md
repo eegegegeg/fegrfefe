@@ -1,3 +1,1 @@
-https://skribbl.io/?3bCEOjQR
-
-https://character.ai/login/6f883b3a-4783-46ea-8716-88fb6dea7cdf
+https://click.txn-email03.playstation.com/?qs=c1e173178f1aa12c3a7842144a77fe9a308c0c81c3eee72f679ebc05f9f09a3547ef81afe5c736a618d3468c6b7a0c7ffb695ac319a3d0fa87a76e75c390a4f8
