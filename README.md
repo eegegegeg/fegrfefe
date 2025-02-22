@@ -1,1 +1,1 @@
-https://click.txn-email03.playstation.com/?qs=304bb21a42fb291b413cfa066b23885d96fb39cde072a88244313fed783bbc039d5aea38cab55766c5d85d7ff4f77e4ac60d06455b8e86e7bbb3892948b20135
+https://character.ai/login/947a3ad4-9b89-40cb-8084-05c9991fc5f3
